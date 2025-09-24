@@ -1,1 +1,0 @@
-# Wisata-Kab.Sambas
